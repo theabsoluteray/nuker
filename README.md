@@ -2,3 +2,5 @@
 # just a random tool
 yeah i just fixed somethings and improved this 
 # The developers are not responsible for anything
+
+[**Ray#1111**](https://discord.com/users/1043194242476036107) | [**Shadow#1111**](https://discord.com/users/887172710248116224)
